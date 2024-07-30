@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @arshiyagarg Arshiya Garg
-- 👀 I’m interested in coding,learning new skills and last but not he least music
+- 👀 I’m interested in coding,learning new skills and last but not the least creating music
 - 🌱 I’m currently learning Machine Learning , that's my new target
 - 💞️ I’m looking to collaborate on various projects which help me learn and hone my skills
 - 😄 Pronouns: She/Her
